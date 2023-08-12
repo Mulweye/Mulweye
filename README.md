@@ -12,7 +12,7 @@ I’m interested in Data Science and Machine learning.
 
 I’m looking to collaborate on projects that will help me have a niche of focus on data and enable me put my knowledge and skills into providing insights and reccomendations that make impact and effect positive change.
 
-Reach me on: Email: mulweye.anthony@gmail.com, [Twitter](https://twitter.com/tonnie_mulweye) and [LinkedIn](https://www.linkedin.com/in/mulweye-anthony-9b4598165/)
+Reach me on: Email: mulweye.anthony@gmail.com, [Twitter](https://twitter.com/the_BaldBurn) and [LinkedIn](https://www.linkedin.com/in/mulweye-anthony-9b4598165/)
 
 <!---
 Mulweye/Mulweye is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
